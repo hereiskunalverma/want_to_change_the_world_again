@@ -11,4 +11,9 @@
 
 
 
-# If you are really serious about it, contact me - theeverythingstore19@gmail.com (nothing related to Amazon)
+# If you are really serious about it, make add name below
+
+# World Changers -- 
+
+1. Me
+
